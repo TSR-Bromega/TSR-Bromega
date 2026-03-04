@@ -5,7 +5,7 @@
 ### ^ MY BOIS ARE INTERACTING *SCREAMSSSSSSSSSSSSS!!!!! ^W^*
 #### And to all of the wondeful people who follow me or interact with me on PT, AHHHH I LOVE ALL OF YOU!!!! <333
 
-## Note: If you see THIS SKIN!! In the Sonic Area, THEN HII THATS ME AND COME CUDDLE!!
-<img width="1366" height="768" alt="Screenshot 2026-03-04 9 36 44 AM" src="https://github.com/user-attachments/assets/1a064151-e026-4eb0-8460-dd4f8057996a" />
+![unnamed (7)](https://github.com/user-attachments/assets/cf106b88-0ec5-4965-8e06-0669460db81b)
+###### ^ Can you tell I main Zavok? T^T  
 
 
