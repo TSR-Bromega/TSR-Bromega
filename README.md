@@ -6,6 +6,6 @@
 #### And to all of the wondeful people who follow me or interact with me on PT, AHHHH I LOVE ALL OF YOU!!!! <333
 
 ![unnamed (7)](https://github.com/user-attachments/assets/cf106b88-0ec5-4965-8e06-0669460db81b)
-###### ^ Can you tell I main Zavok? T^T  
+###### ^ Can you tell I main Zavok? T^T  *WILL UPDATE OFTEN WHEN I PLAY MORE GAMES!!*
 
 
