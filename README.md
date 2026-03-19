@@ -5,7 +5,9 @@
 ### ^ MY BOIS ARE INTERACTING *SCREAMSSSSSSSSSSSSS!!!!! ^W^*
 #### And to all of the wondeful people who follow me or interact with me on PT, AHHHH I LOVE ALL OF YOU!!!! <333
 
-![unnamed (7)](https://github.com/user-attachments/assets/cf106b88-0ec5-4965-8e06-0669460db81b)
-###### ^ Can you tell I main Zavok? T^T  *WILL UPDATE OFTEN WHEN I PLAY MORE GAMES!!*
+![209b1b0a-81e9-4665-ad81-d109947873d4](https://github.com/user-attachments/assets/0a7ea6d1-06a7-4587-b978-63e3f7cc1a67)
+###### Holy fuck- TwT...
 
-
+### ANOTHER THING!!
+<img width="1920" height="1080" alt="308d0bd2-db1d-4ae1-85a9-54bb9409f7ff" src="https://github.com/user-attachments/assets/7bf14a89-6245-4572-b5ff-9c5d804c7b57" />
+YESSSSSSSSSSSS, IM DONE WITH GIVING HIM TICKETS!!! AFTER 6 MONTHS OF NONSTOP PLAYING!! T-T now i can finally rest
